@@ -1,2 +1,3 @@
 # sentient
-Novel
+
+Science fiction novel
