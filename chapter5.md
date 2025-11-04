@@ -1,0 +1,10 @@
+# chapter 5
+
+Arriving in the state of Arizona, Evangeline started to think back to her younger days when her dad would take the family on road trips while he had the summers off from teaching, Arizona was never one of the places she visited together with her dad, this was her first time to the state, but the sense of adventure and the unknown in front of her scared her yet at the same time excited her.  ph3r0nix hadn't made contact with her following their last correspondence, she would glance at her phone constantly expecting the next message to come, why wasn't ph3r0nix responded, did she go to Phoenix for no reason?  She still had a couple hours of driving before getting to Phoenix and was deciding on whether to stay in her car or get a hotel with a hot shower in Phoenix.
+
+The roads in Arizona were flat, she had passed through Joshua Tree National Park down I-5 which was where the band U2 spent some time during their American Tour to come up with one of their best albums ever.  No cars were in sight, it was just her and her prius on the road.  This allowed her time to think, ph3r0nix, phoenix, that's too much of a coincidence, he can't be from phoenix, that's too obvious, hackers were never obvious, intentionally difficult to comprehend, confusing.  If he's not from Phoenix, where is he from?
+
+Suddenly a message appeared from ph3r0nix, but it wasn't a text message, but rather an audio message, which he never sent before.  She gazed ahead at the traffic, miles of road going straight, so she glanced at her phone again and played the message, there was a distorted voice to cover up his/her identity.
+
+"Hopefully you're close to Phoenix, we need to be absolutely careful, make sure you're not being followed, we can not meet longer than 5 minutes, I will explain as much as I can to you, but for your safety, put the timer on 5 minutes and get out of there quickly after that.  The address is for a diner, sit at the booth closest to the restrooms, order coffee and hashbrowns and I will be there shortly."
+
